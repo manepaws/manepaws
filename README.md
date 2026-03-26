@@ -5,12 +5,11 @@
 
 **꒰ᩧׁׅ  ㅤ 𓏼**ㅤ <img src="https://u.cubeupload.com/Dagasi/95sinttulo2026032614.png" width="240">ㅤㅤ 𓏫**⑅⃝** ۪۪۫ *♡*
 
-***D***ag*a*si ${\color{#434D68}\textsf{or}}$ ***F***uf*u*ㅤㅤ 
-
-<img src="https://u.cubeupload.com/Dagasi/fdc98sinttulo2026032616.png" width="230">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://u.cubeupload.com/Dagasi/fdc98sinttulo2026032616.png" width="300">
 
 ${\color{#323745}\textsf{𔓕}}$
-[@*a*ta*b*ook](https://clonesfies.atabook.org) [@*a*ta*b*ook](https://clonesfies.atabook.org) [@*a*ta*b*ook](https://clonesfies.atabook.org) 
+[@*a*ta*b*ook](https://clonesfies.atabook.org)  ${\color{#FEC5C9}\textsf{ 𖹭 }}$ㅤ[@*s*traw*p*age](https://sweetiezam.straw.page) ${\color{#F5E0E1}\textsf{ 𖹭 }}$ [@*r*entry](https://rentry.co/parf7es) ${\color{#ECFFFD}\textsf{ 𖹭 }}$ [@**](https://
+ㅤ
 
 <img src="https://u.cubeupload.com/Dagasi/93sinttulo2026032614.png" width="576">
 
@@ -23,4 +22,4 @@ ${\color{#434D68}\textsf{︶ ︶}}$ ㅤㅤ*f*oll**o**wㅤ ${\color{#323745}\text
 
 [parrot](https://github.com/wifiesss)ㅤ ۫ ׅ ㅤ[spoke](https://github.com/AngstGod) ゛ㅤㅤ⌣ㅤ***♡***ྀི ₊ㅤㅤ[wemmbu](https://github.com/squiddx) 
 
-<img src="https://u.cubeupload.com/Dagasi/21698sinttulo2026032616.png" width="230">
+${\color{#323745}\textsf{ credit to all the artists of the drawings shown here}}$ ♡
