@@ -1,6 +1,6 @@
 <div align="center">
 
-♡ ${\color{#323745}\textsf{ credit to all the artists of the drawings shown here}}$
+ ${\color{#FEC5C9}\textsf{ 𝒑roudly }}$ ${\color{#323745}\textsf{ ♡ }}$ ${\color{#FEC5C9}\textsf{ 𝒕aken }}$ ㅤ.ㅤㅤ[@coldifiedd](https://github.com/coldifiedd) 
 <img src="https://u.cubeupload.com/Dagasi/92sinttulo2026032614.png" width="600">
 
 **꒰ᩧׁׅ  ㅤ 𓏼**ㅤ <img src="https://u.cubeupload.com/Dagasi/95sinttulo2026032614.png" width="240">ㅤㅤ 𓏫**⑅⃝** ۪۪۫ *♡*
@@ -24,4 +24,4 @@ ${\color{#323745}\textsf{ credit to all the artists of the drawings shown here}}
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://u.cubeupload.com/Dagasi/fdc98sinttulo2026032616.png" width="300">
 
-${\color{#323745}\textsf{ CRY ABOUT IT CHERISEEE LMAOOOO @NostalgicBurger}}$
+
