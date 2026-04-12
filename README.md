@@ -3,7 +3,7 @@
 [doc](https://docs.google.com/document/d/104RyAzCY_3boiI3L6kK4KLxGLpD0wFVWOSTZHsQLCwk/edit?usp=drivesdk) ㅤㅤㅤㅤㅤㅤㅤ♡ㅤㅤㅤㅤㅤㅤㅤ[reply](https://docs.google.com/document/d/1hB4IzLtdErnzjBjl7104LpWEHtvfE9MT2XFnA50JYvY/edit?usp=drivesdk) 
 
   
-<img src="https://u.cubeupload.com/Dagasi/cb6Untitled147202604120.png" width="540">
+<img src="https://u.cubeupload.com/Dagasi/Untitled147202604121.png" width="540">
 
 
 for the damaged coda
